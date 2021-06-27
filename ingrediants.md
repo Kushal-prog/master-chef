@@ -1,0 +1,1 @@
+Ingrediamts for idly are: wbatter, oidly cooker, water, cocunut, 
